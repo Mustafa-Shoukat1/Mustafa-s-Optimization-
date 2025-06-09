@@ -1,11 +1,5 @@
 # 🧘‍♂️ 2025 Update on Healthy Living Practices
 
-📝 **Article & 🎥 Video**
-
-At the beginning of 2025, I published a comprehensive reflection on my personal health practices from the previous year:
-📄 **A Wellness Blogger’s 2024 Review**
-
-Since it’s quite lengthy, I also shared a 🎬 video version on Bilibili for those who prefer visual formats.
 
 Here’s a minimalist lifestyle checklist for general well-being:
 
